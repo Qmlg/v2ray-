@@ -1,5 +1,5 @@
 分享一个可以免费使用的机场，且性价比非常的高。
-https://w1.ddnsgo.xyz/auth/register?code=jpZj</p>
+https://w1.v2free.top/auth/register?code=jpZj</p>
 
 <p>如果要求不高，可以使用这个网址的免费服务；可以注册试试，免费的速度都很快</p>
 <p>VIP服务需要充值完成后，到套餐购买页面用充值的余额购买产品后，然后更新订阅，才能开始使用。</p>
